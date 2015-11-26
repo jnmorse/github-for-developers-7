@@ -5,6 +5,8 @@ Claremont, NH, USA
 
 **Favorite Color** - Dark Green
 
+**Favorite Month:** January
+
 ##### Hobbies
 - Computers
 - Linux
